@@ -1,1 +1,1 @@
-project ideation phase
+ideas for the projects
